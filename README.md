@@ -1,0 +1,1 @@
+The alien flutist plays a melody; glowing sparks appear around him, bringing the plants to life. Translucent beings emerge from the light, dance around the musician, and finally ascend into the sky, dissolving into the stars.
